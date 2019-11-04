@@ -1,0 +1,1 @@
+# General-Studies-Manual-For-UPSC-and-State-Public-Services-Examinations
